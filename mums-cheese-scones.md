@@ -6,7 +6,7 @@ Makes 10 scones
 
 1. 680g self-raising flour
 2. 500g grated cheese
-3. 4oz butter
+3. 115g butter
 4. 4 eggs
 5. 8 Tbsp milk
 6. 4 tsp of mustard powder
