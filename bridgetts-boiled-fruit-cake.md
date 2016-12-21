@@ -19,7 +19,7 @@
 
 ### Directions
 
-1. Place butter, dark sugar, dried fruit (except cherries & almonds), water, bicarbonate and mixed spice into a plain
+1. Place butter, dark sugar, dried fruit (except cherries & almonds), water, bicarbonate and mixed spice into a pan
 2. Bring to the boil and then simmer for 1 minute
 3. Remove from heat and leave to cool for 1 hour
 4. Add cherries and almonds then place into a large mixing bowl
